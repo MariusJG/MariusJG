@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Jean Marius
 - 👀 I’m interested in Cyber Security and Web Development
 - 🌱 I’m currently learning everything that I can.
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate with true and honest people.
 - 📫 How to reach me marius@cudrag.net
 - 😄 Pronouns: Marius
 - ⚡ Fun fact: I am the rooster that came before the egg and the hen.
